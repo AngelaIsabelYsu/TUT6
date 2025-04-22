@@ -47,5 +47,5 @@ Desarrollar la constancia en mis compromisos. Esto incluirá establecer
 una rutina diaria de hábitos positivos, como leer cada día y hacer 
 ejercicio regularmente, para fomentar la disciplina personal.
 
-
+https://trello.com/invite/b/6807e0f6831ad2ea726587c5/ATTI023f2c6a2a6fc861485f69867d0c710c7829AF46/tarea 
 
